@@ -8,8 +8,11 @@ Meu nome é Emili
 
 ### Você pode entrar em contato comigo :mailbox
 
-paludettomarcelo@gmail.com
+emiliraissa56@gmail.com
 
-@marcelopaludetto
+emili-raissa
 
-![descrição do GIF](link GIF do Tenor)
+
+
+![nyan-cat](https://github.com/user-attachments/assets/3a657551-b1f4-4843-bc00-e6170718e550)
+
